@@ -1,0 +1,1 @@
+# mynewfavsite.github.io
